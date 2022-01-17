@@ -9,7 +9,6 @@
 - 📫 How to reach me: no way 'cause I'm a kid
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I own a pony named Akino du Canal
-- 
 <!--
 **hxbunny2/hxbunny2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
